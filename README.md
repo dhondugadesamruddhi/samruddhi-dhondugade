@@ -25,7 +25,7 @@
 
 ### 📫 Let's Connect!
 - 📧 samruddhidhondugade.sde@gmail.com
-- 💼 [LinkedIn](www.linkedin.com/in/samruddhi-dhondugade-554b09215)
+- 💼 [www.linkedin.com/in/samruddhi-dhondugade-554b09215]
 
 ---
 
